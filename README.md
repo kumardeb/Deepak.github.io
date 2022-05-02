@@ -1,1 +1,0 @@
-# kumerdeb.github.io
